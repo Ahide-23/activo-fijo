@@ -1,2 +1,0 @@
-# activo-fijo
-activo-fijo
